@@ -70,6 +70,6 @@ I was the team leader for this project.
 ---
 
 ## **Contributors**  
-🚀 *Developed by* **Hana Sherif & Team** 🚀  
+🚀 *Developed by* **Hana Elanshassy & Team** 🚀  
 
 Let me know if you need any modifications! 😊
